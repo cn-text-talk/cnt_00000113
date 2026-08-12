@@ -8,6 +8,9 @@
 <br>李老师,[没干扰过],百度后台.
 <br>鬼延魔,[败坏了],百度后台.
 <br>
+<br>你们,用百度,[不]用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
+<br>。。。。。。。。来解决法轮功问题,你们就是在[敌对李老师].
+<br>
 <br>李老师的是法轮功,你的是什么功?
 <br>
 <br>法轮功是邪教?还是李老师是邪教啊?
@@ -19,6 +22,11 @@
 <br>
 <br>$\textsf{\color{red}{李老师是邪教?还是你是邪教啊?}}$
 <br>$\textsf{\color{red}{法轮功李老师是邪教?还是你是邪教啊?}}$
+<br>
+<br>没有法轮功,你就不能活了.
+<br>没有李老师,你就不能活了.
+<br>没有法轮功李老师,你就不能活了.
+<br>
 </h3>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
