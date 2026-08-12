@@ -1,2 +1,16 @@
-# cnt_00000113
-cnt_00000113
+<h3>
+<br>$\textsf{\color{red}{2016,李老师,拯救世界,[不]用百度,用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].}}$
+<br>$\textsf{\color{red}{2016,鬼延魔,败坏世界,用百度,[不]用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].}}$
+<br>
+<br>李老师的是法轮功,你的是什么功?
+<br>
+<br>法轮功是邪教?还是李老师是邪教啊?
+<br>你证明给我看你赢,还是李老师赢了?
+<br>
+<br>[你][和][李老师][吵架]看看:
+<br>$\textsf{\color{red}{你赢了,李老师就是邪教.}}$
+<br>$\textsf{\color{red}{你输了,你就是邪教.}}$
+<br>
+</h3>
+<hr>
+<img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
