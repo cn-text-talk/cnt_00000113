@@ -1,7 +1,7 @@
 <h3>$\textsf{\color{red}{你们被骗不关我事...}}$
 <br>
-<br>2016,李老师,拯救世界,[不]用百度,用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
-<br>2016,鬼延魔,败坏世界,用百度,[不]用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
+<br>李老师,拯救世界,[不]用百度,用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
+<br>鬼延魔,败坏世界,用百度,[不]用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
 <br>
 <br>李老师的是法轮功,你的是什么功?
 <br>
