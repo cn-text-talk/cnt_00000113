@@ -1,4 +1,5 @@
-<h3>
+<h3>$\textsf{\color{red}{你们被骗不关我事...}}$
+<br>
 <br>2016,李老师,拯救世界,[不]用百度,用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
 <br>2016,鬼延魔,败坏世界,用百度,[不]用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
 <br>
@@ -11,6 +12,8 @@
 <br>$\textsf{\color{red}{你赢了,李老师就是邪教.}}$
 <br>$\textsf{\color{red}{你输了,你就是邪教.}}$
 <br>
+<br>$\textsf{\color{red}{李老师是邪教?还是你是邪教啊?}}$
+<br>$\textsf{\color{red}{法轮功李老师是邪教?还是你是邪教啊?}}$
 </h3>
 <hr>
 <img src="https://github.com/user-attachments/assets/3bbb736a-b8e1-4f8c-a079-1b446b70ebc4" alt="MLH_100_R000_M_1X2_00">
