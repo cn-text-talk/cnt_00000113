@@ -3,6 +3,10 @@
 <br>李老师,拯救世界,[不]用百度,用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
 <br>鬼延魔,败坏世界,用百度,[不]用法轮大法官方网站[www.falundafa.org]和明慧网[www.minghui.org].
 <br>
+<br>李老师,[动得了],法轮大法官方网站[www.falundafa.org]上的一个字.
+<br>鬼延魔,[败坏了],百度后台,
+<br>。。.也[动不了],法轮大法官方网站[www.falundafa.org]上的一个字.
+<br>
 <br>李老师的是法轮功,你的是什么功?
 <br>
 <br>法轮功是邪教?还是李老师是邪教啊?
